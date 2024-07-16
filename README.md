@@ -1,1 +1,1 @@
-# Gana-USD-sin-l-mites-
+# Gana-USD-sin limites 
